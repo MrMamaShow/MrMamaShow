@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MrMamaShow
 - 👀 I’m interested in Making Cool Stuff
-- 🌱 I’m currently learning Electrical Engineering
+- 🌱 I’m currently Studying Electrical Engineering
 - 💞️ I’m looking to collaborate on any cool or intresting projects that can be made into a vid
 - 📫 How to reach me Dm me on Twitter or Insta
 - 😄 Pronouns: He/Him
